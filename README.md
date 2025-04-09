@@ -1,7 +1,8 @@
+```
 - 👋 Hi, I’m @dows5572
-- Student of BSIT in Bulacan State University (soon I'll shift to other course🤣)
+- Student of BSIT in ***Bulacan State University*** (soon I'll shift to other course🤣)
 - Progress knowledge 1/100000 (I hate coding, though my wpm 90-120 WPM😝)
-- 
+```
   💻💾💿📀🖥🖨⌨🖱🖲📞📱📶🤳🤳🤙☎📲📳📴📵🐱‍🐉🐱🐈😸😹😺😻😼😽😾😿🙀🐶🐶🐶🐕🐩🐕‍🦺
 <br>
 <div>
